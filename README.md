@@ -1,0 +1,1 @@
+# Autonomous-Safety-Monitoring-AI-for-Industry
